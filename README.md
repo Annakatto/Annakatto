@@ -5,4 +5,4 @@ Junior QA Engineer skilled in automation (Selenium, JavaScript), API testing (Po
 [https://github.com/Annakatto](<a href="https://ibb.co/ymJ2twdX"><img src="https://i.ibb.co/Fktp2SmK/banner-QA-Dise-o.jpg" alt="banner-QA-Dise-o" border="0"></a>)
 
 ✔️
-[Aquí me encuentras](https://www.linkedin.com/in/annakatto/)
+[You can find me HERE](https://www.linkedin.com/in/annakatto/)
